@@ -7,7 +7,7 @@ Eng Stuff @ Work:
   * As a Releaser.
 
 
-Not @ Work: 🏃🏻‍♀️ - 📖 - 🎶 - 🏁 - 🌁 - 🎾 - 🌿
+Not @ Work: 🏃🏻‍♀️ - 📖 - 🎶 - 🎾 - 🌿
 
 I'm @xsf0105 everywhere - find me on [Github](https://github.com/xsf0105),[juejin](https://juejin.cn/user/4212984287334711),etc!
 

@@ -4,8 +4,8 @@ Eng Stuff @ Work:
 
 - Working as a core engineer on Quark via Haluo
 
-  -- As a Core Collaborator.
-  -- As a Releaser.
+* As a Core Collaborator.
+* As a Releaser.
 
 
 Not @ Work: 🏃🏻‍♀️ - 📖 - 🎶 - 🏁 - 🌁 - 🎾 - 🌿

@@ -9,7 +9,7 @@ Eng Stuff @ Work:
 
 Not @ Work: 🏃🏻‍♀️ - 📖 - 🎶 - 🎾 - 🌿
 
-I'm @xsf0105 everywhere - find me on [Github](https://github.com/xsf0105), [juejin](https://juejin.cn/user/4212984287334711), [segmentfault](https://segmentfault.com/u/allan4738/articles), etc!
+I'm @xsf0105 everywhere - find me on [Github](https://github.com/xsf0105), [twitter](https://segmentfault.com/u/allan4738/articles), [juejin](https://juejin.cn/user/4212984287334711), [segmentfault](https://segmentfault.com/u/allan4738/articles), etc!
 
 <!--
 **xsf0105/xsf0105** is a ✨ _special_ ✨ repository because its `README.md` (this file) appears on your GitHub profile.
